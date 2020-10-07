@@ -1,2 +1,2 @@
 # BeMotivated
-Add your motivational qoute as markquee language or text file
+Add your motivational quote as marquee language , text file , htm file
