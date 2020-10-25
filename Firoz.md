@@ -10,3 +10,11 @@
 “The only time you fail is when you fall down and stay down.”
 
 Stephen Richards
+
+
+“It makes a big difference in your life when you
+stay positive.”
+
+Ellen DeGeneres
+“If opportunity doesn’t knock, build a door.”
+
