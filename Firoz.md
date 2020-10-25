@@ -7,6 +7,11 @@
 
 "Don’t take rest after your first victory because if you fail in second, more lips are waiting to say that your first victory was just luck.”-APJ Abdul kalam
 
+“Positive thinking will let you do everything better than negative thinking will.”
+
+Zig Ziglar
+
+
 “When you are enthusiastic about what you do, you feel this positive energy. It’s very simple.”
 
 Paulo Coelho
@@ -31,5 +36,6 @@ stay positive.”
 
 Ellen DeGeneres
 “If opportunity doesn’t knock, build a door.”
+
 
 
