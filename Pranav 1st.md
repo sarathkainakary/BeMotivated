@@ -1,1 +1,1 @@
-"Be the reason for someone's smile."
+"Be the reason for someone's smile"
