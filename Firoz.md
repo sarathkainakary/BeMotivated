@@ -6,6 +6,10 @@
 "The weak can never forgive. Forgiveness is the attribute of the strong."-mahatma gandhi
 
 
+"Nobody can hurt me without my permission."
+Mahatma gandhi
+
+
 "Don’t take rest after your first victory because if you fail in second, more lips are waiting to say that your first victory was just luck.”-APJ Abdul kala
 “No one is perfect - that’s why pencils have erasers.”
 : Wolfgang Riebe
@@ -44,3 +48,4 @@ Ellen DeGeneres
 
 
 
+>>>
