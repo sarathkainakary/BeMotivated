@@ -6,3 +6,8 @@
 "The weak can never forgive. Forgiveness is the attribute of the strong."-mahatma gandhi
 
 "Don’t take rest after your first victory because if you fail in second, more lips are waiting to say that your first victory was just luck.”-APJ Abdul kalam
+
+“You’re off to great places, today is your day. Your mountain is waiting, so get on
+your way.”
+
+Dr. Seuss
