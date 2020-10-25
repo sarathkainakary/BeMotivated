@@ -1,1 +1,1 @@
-"Life is full of misteries, live in the moment without thinking of the future."
+"Life is full of misteries, live in the moment without thinking of the future"
