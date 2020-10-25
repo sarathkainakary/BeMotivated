@@ -6,3 +6,8 @@
 "The weak can never forgive. Forgiveness is the attribute of the strong."-mahatma gandhi
 
 "Don’t take rest after your first victory because if you fail in second, more lips are waiting to say that your first victory was just luck.”-APJ Abdul kalam
+
+“In every day, there are 1,440 minutes. That means we have 1,440 daily opportunities to make a
+positive impact.”
+
+Les Brown
