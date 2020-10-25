@@ -6,3 +6,6 @@
 "The weak can never forgive. Forgiveness is the attribute of the strong."-mahatma gandhi
 
 "Don’t take rest after your first victory because if you fail in second, more lips are waiting to say that your first victory was just luck.”-APJ Abdul kalam
+“Positive thinking will let you do everything better than negative thinking will.”
+
+Zig Ziglar
