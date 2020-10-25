@@ -5,3 +5,5 @@
 
 "The weak can never forgive. Forgiveness is the attribute of the strong."-mahatma gandhi
 
+"Nobody can hurt me without my permission."
+Mahatma gandhi
