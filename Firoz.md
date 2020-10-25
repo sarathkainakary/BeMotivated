@@ -5,3 +5,5 @@
 
 "The weak can never forgive. Forgiveness is the attribute of the strong."-mahatma gandhi
 
+“To succeed in your mission, you must have single-minded devotion to your goal.”
+APJ Abdul Kalam 
